@@ -32,3 +32,4 @@ I love coding in the dark with lo-fi beats 🎧 and building side projects that 
 
 _Thanks for stopping by! ⭐️ Consider following or reaching out if you'd like to collaborate!_
 
+Chiranthmoger7@example.com
